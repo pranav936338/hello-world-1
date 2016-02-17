@@ -1,5 +1,2 @@
 # hello-world
-just begining
-but not the end
-
-pranav try once again
+Gadhii.. Dimag ek dum ni h tumhare paas.. dimag ke naame pe anda h
