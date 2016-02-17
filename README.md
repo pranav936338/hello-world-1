@@ -6,3 +6,4 @@ tum chup raho..tumhara dimaag kharabh h
 
 
 re bong bujhli ki ni?
+kkkk
